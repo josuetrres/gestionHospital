@@ -1,1 +1,2 @@
-![image](https://github.com/josuetrres/gestionHospital/assets/163780660/3ba69f82-a420-4d43-bc73-bd8c6e2a9ea6)
+![image](https://github.com/josuetrres/gestionHospital/assets/163780660/c1a460db-91e9-4f02-8c83-463bfd10df72)
+
